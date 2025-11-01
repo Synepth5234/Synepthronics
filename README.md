@@ -6,4 +6,4 @@
  How to reach me ...,
  Pronouns: ...,
  Fun fact: ...,
- Im a single father of one...
+ I currently want this because i need it for game developing
